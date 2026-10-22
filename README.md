@@ -1,1 +1,1 @@
-If you know you know %COYG
+If you know you know #COYG
